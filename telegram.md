@@ -7,6 +7,48 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/19 09:02
+---
+
+## IranIntlTV — post 336234
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336234_1778304744.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شیوع ویروسی موسوم به «هانتا» در یک کشتی تفریحی تاکنون به مرگ سه نفر منجر شده است. سازمان بهداشت جهانی اعلام کرد تا ۱۸ اردیبهشت، ۶ مورد قطعی و ۲ مورد محتمل ابتلا به این ویروس شناسایی شده است.
+نظام‌الدین میثاقی، متخصص بیهوشی‌ و استادیار در دانشگاه آریزونا، بیشتر درباره این ویروس توضیح می‌دهد
+@iranintltv
+</div>
+
+## alonews — post 118795
+
+<div align="center">
+  <a href="telegram/content/alonews_118795_1778304746.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈تصاویر ماهواره‌ای نشان می‌دهد که تعداد بسیار زیادی از قایق‌های تندرو نیروی دریایی سپاه همچنان در خلیج فارس فعال هستند.
+
+
+🔴در این تصویر، بیش از ۱۰۰ قایق تندرو در یک آرایش واحد در تنگه هرمز دیده می‌شوند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 118793
+
+<div align="center">
+  <a href="telegram/content/alonews_118793_1778304746.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 فیلمی که لحظه هدف قرار گرفتن اردوگاه KDPI نزدیک کویا، استان اربیل، کردستان عراق توسط پهپادهای سپاه را نشان می‌دهد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/19 08:52
 ---
 
